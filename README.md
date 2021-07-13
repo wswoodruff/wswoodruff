@@ -1,6 +1,6 @@
 ### Heyo! 👋
 
-I just [got certified] as a Node Services Developer (https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a25a9813c) thanks [BRS](https://github.com/BigRoomStudios)!
+I just [got certified](https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a25a9813c) as a Node Services Developer thanks [BRS](https://github.com/BigRoomStudios)!
 
 Hope you have a great day today!
 Hope you have a great day tomorrow!
