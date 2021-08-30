@@ -1,7 +1,5 @@
 ### Heyo! 👋
 
-I recently [got certified](https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a25a9813c) as an OpenJS Node.js Services Developer — thanks [@BigRoomStudios](https://github.com/BigRoomStudios)!
-
 Hope you have a great day today!
 Hope you have a great day tomorrow!
 
