@@ -1,5 +1,7 @@
 ### Heyo! 👋
 
+I don't even look like the picture so WHO KNOWS what I REALLY look like???
+
 Hope you have a great day today!
 Hope you have a great day tomorrow!
 
