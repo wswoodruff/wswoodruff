@@ -3,8 +3,6 @@
 Hope you have a great day today!
 Hope you have a great day tomorrow!
 
-I don't even look like the picture so WHO KNOWS what I REALLY look like???
-
 Here's my [cert](https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a25a9813c?source=linked_in_profile) just so you know I'm not just making it up =P
 
 iNtErNet CoMeDiAn — I swear I'm funny online just not on here.
