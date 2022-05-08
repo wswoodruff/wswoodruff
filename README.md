@@ -8,5 +8,3 @@ Here's my [Node Cert](https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a
 [iNtErNet CoMeDiAn](https://www.shlinkedin.com/sh/pancakedev) — I'm funny online just not on here.
 
 Treat others the way you want to be treated, and love your neighbor as yourself.
-
-Sometimes I can be serious too, Ok?
