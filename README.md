@@ -1,6 +1,6 @@
 ### xD My Zuuude!
 
-I honestly hope ur chillin right now cuz if everythings going alright then I am too and in that case then man we're chillin and I'm like ok I hope everybody else is too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
+I honestly hope ur chillin right now cuz if everythings going right for u then right now we're chillin and I'm like ok I hope everybody else is too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
 
 awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa
 
