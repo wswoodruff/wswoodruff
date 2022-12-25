@@ -1,6 +1,6 @@
 ### xD My Zuuude!
 
-I honestly hope ur chillin right now cuz if everything's going according to plan then I'm chillin too cuz u kno `zillIsChillin` and then u know we're chillin and I'm like ok I hope everybody else is chillin too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
+I honestly hope ur chillin right now cuz if everything's going according to plan then I'm chillin too cuz u kno, `@zillIsChillin` and then u know we're chillin and I'm like ok I hope everybody else is chillin too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
 
 awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa!!!
 
