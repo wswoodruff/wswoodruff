@@ -2,7 +2,7 @@
 
 I honestly hope ur chillin right now cuz if everything's going according to plan then I'm chillin too cuz u kno `zillischillin` and then u know we're chillin and I'm like ok I hope everybody else is too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
 
-awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa
+awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa!!!
 
 And u know what? I hope you have a great day tomorrow too, suckaaa
 
