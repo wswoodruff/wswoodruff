@@ -6,7 +6,10 @@ awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa!!!
 
 And u know what? I hope you have a great day tomorrow too, suckaaa
 
-### I'm Zill, I'm a suckaaa, but don't forget that we're all suckaaas sometimes, too, but mostly you
+### I'm Zill, I used to be a suckaaa, ok I'll be honest I'm still a suckaaa
+
+
+forget that we're all suckaaas if  for even entertaining this silliness — wisdom tells me we're all suckaaas 
 - Honestly I became Zill since I learned the Z axis
 - Collector of uh, factors
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes and I'm not embarrassed of it anymore
