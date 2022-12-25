@@ -1,6 +1,6 @@
 ### Heyoooooooooo! xD
 
-I honestly hope ur chillin right now cuz if everythings going right then I am and in that case then I'm like ok I hope everybody else is and then if that's you too then I'm like heck yaaaa suckaaa
+I honestly hope ur chillin right now cuz if everythings going right then I am too and in that case then man we're chillin and I'm like ok I hope everybody else is too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like awww yaaaa suckaaa
 
 And u know what? I hope you have a great day tomorrow too, suckaaa
 
