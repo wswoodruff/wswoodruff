@@ -1,6 +1,6 @@
 ### xD My Zuuude!
 
-I honestly hope ur chillin right now cuz if everything's going according to plan then I'm chillin too cuz, u kno, `@zillIsChillin` and then u know we're chillin and I'm like ok I hope everybody else is chillin too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
+I honestly hope ur chillin right now cuz if everything's going according to plan then I'm chillin too cuz, u kno, `@zillIsChillin` and then u know we're chillin and then I'm like ok I hope everybody else is chillin too my zude and then then ur like aw ya man don't worry about it zill and I'm like hey let's make some cool stuff to chill everybody out and we're both like:::: stdlib or somthing ERROR
 
 awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa!!!
 
