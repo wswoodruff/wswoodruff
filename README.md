@@ -2,7 +2,7 @@
 
 I hope you have a great day today
 
-And u know what suckaaa? I hope you have a great day tomorrow too
+And u know what suckaaa? I hope you have a great day tomorrow too suckaaa
 
 ### I'm Zill
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes
