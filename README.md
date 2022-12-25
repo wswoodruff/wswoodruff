@@ -2,7 +2,7 @@
 
 I hope you have a great day today!
 
-And u know what suckaaa? I hope you have a great day tomorrow too suckaaa
+And u know what? I hope you have a great day tomorrow too, suckaaa
 
 ### I'm Zill, I'm a suckaaa, but don't forget we're all suckaaas, too
 - Honestly I became Zill ever since the Z axis
