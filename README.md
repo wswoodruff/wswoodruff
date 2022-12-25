@@ -1,8 +1,8 @@
 ### Heyo! 👋
 
-Hope you have a great day today!
+I hope you have a great day today
 
-Hope you have a great day tomorrow!
+And u know what suckaaa? I hope you have a great day tomorrow too.
 
 ### Zill
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes Experiments
