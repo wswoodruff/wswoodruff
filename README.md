@@ -2,7 +2,7 @@
 
 I honestly hope ur chillin right now cuz if everythings going right then I am too and in that case then man we're chillin and I'm like ok I hope everybody else is too and then then we're like hey let's make some cool stuff to chill everybody out and we're both like
 
-awwwwwwwwwwwwwwwwwwwwwwwww yaaaaaaaaaaaaaaaaaaa suckaaaaaaaaaaaaaaaaaaaaa
+awwwwww yeeeeeeeaaaaaaaaaaa suckaaaaaaaaaaaaaaaa
 
 And u know what? I hope you have a great day tomorrow too, suckaaa
 
