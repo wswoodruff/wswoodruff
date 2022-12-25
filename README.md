@@ -1,6 +1,6 @@
 ### Heyo! xD
 
-I hope you have a great day today
+I hope you have a great day today!
 
 And u know what suckaaa? I hope you have a great day tomorrow too suckaaa
 
