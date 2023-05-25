@@ -1,6 +1,6 @@
 ### xD My Zuuude!
 
-- [Resume here](https://wswoodruff.github.io/resume)
+- [Resume here](https://wswoodruff.github.io/resume/wswoodruff-resume.pdf)
 - Chat w/ Chappy! [chappyai.com](https://chappyai.com)
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes
 - Here's my [Node Cert](https://www.credly.com/badges/dc107cd5-6665-4e41-9cf0-406a25a9813c) so u know I'm not making it up xD
