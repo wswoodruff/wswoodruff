@@ -1,4 +1,4 @@
-### xD My Zuuude!
+### xD Heyoo!
 
 - [Resume here](https://wswoodruff.github.io/resume/wswoodruff-resume.pdf)
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes
