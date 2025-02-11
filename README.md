@@ -1,4 +1,4 @@
 ### xD Heyoo!
 
-- Full-stack JS dev @Nearpeer
+- Full-stack JS Lead Dev @Nearpeer
 - Checkout [Zill's Lab](https://wswoodruff.github.io/zills-lab-site) for my own personal Shader Fes
